@@ -1,1 +1,0 @@
-# minwoogood12.github.io
